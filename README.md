@@ -1,0 +1,2 @@
+# favitathailand.github.io
+favitathailand
